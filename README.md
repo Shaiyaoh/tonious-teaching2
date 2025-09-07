@@ -45,7 +45,7 @@ I’ve learned something powerful:
 > Every conversation, a branch.  
 > Every rupture, a chance to bloom.
 
-That’s why I’ve been **interaction farming** lately — talking to strangers, forcing newness into my life, planting chaos into routine. The act of importance is enoogh alone.
+That’s why I’ve been **interaction farming** lately — talking to strangers, forcing newness into my life, planting chaos into routine. The act of importance is enough alone.
 
 The work ethic need not be perfect to start but with effort graduality takes form. 
 
